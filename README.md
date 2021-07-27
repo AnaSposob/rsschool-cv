@@ -1,1 +1,1 @@
-https://AnaSposob.github.io/rsschool-cv/cv
+https://AnaSposob.github.io/rsschool-cv/
